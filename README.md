@@ -1,4 +1,4 @@
-- 👋 ayoo im eesr
+- 👋 hiiii im eesr
 - I love gaming, biking and coding ;)
 - You wanna work on somethin wit me? add my dc bellow <33
 - eesr#5731
